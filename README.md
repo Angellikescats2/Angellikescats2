@@ -37,3 +37,30 @@ chirality v9 (private)
 
 bloodred (converted to 1.12.2 also its private)
 
+
+Questions
+
+
+Are you good at hvh?
+not quite but i have little skill
+
+Do you watch anime?
+not anymore
+
+What other games do you play?
+valorant
+
+Do you sometimes play vanilla?
+yes half of the time
+
+Whats your ign?
+Angellikescats
+
+Whats your age?
+15
+
+Who's your waifu
+:trollface:
+
+
+
