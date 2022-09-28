@@ -59,8 +59,8 @@ Angellikescats
 Whats your age?
 15
 
-Who's your waifu
-:trollface:
+Who's your waifu :trollface:
+zero two
 
 
 
